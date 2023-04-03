@@ -1,9 +1,6 @@
 # 画廊
 
-Tags: March 26, 2023
-
-> 📸 One picture to showcase my personality: passionate about traveling, photography, and food! 🌍✈️🍲 Using this amazing photo to introduce myself, looking forward to connecting with like-minded friends on Twitter! 🤗
-> 
+> 📸 一张图片展示我的个性：热衷于旅行、摄影和美食！🌍✈️🍲 我将使用这张精美的照片来介绍自己，期待在Twitter上与志同道合的朋友建立联系！🤗
 
 # 2023
 
