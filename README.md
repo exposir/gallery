@@ -19,8 +19,6 @@
 
 ![image](https://user-images.githubusercontent.com/33340988/229490883-15c31410-7f43-4478-9755-06012d239ad7.png)
 
-- [3 月 26 日 奥林匹克森林公园 北京](https://github.com/exposir/gallery#4%E6%9C%882%E6%97%A5-%E5%9B%BD%E8%B4%B8)
-
 ### 3 月 26 日 奥林匹克森林公园 北京
 
 ![image](https://user-images.githubusercontent.com/33340988/229490169-152f7ed9-0ec6-497f-8a38-67ff520d317f.png)
