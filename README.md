@@ -2,8 +2,8 @@
 
 > 📸 一张图片展示我的个性：热衷于旅行、摄影和美食！🌍✈️🍲 我将使用这张精美的照片来介绍自己，期待在 Twitter 上与志同道合的朋友建立联系！🤗
 
-- [4 月 2 日 国贸](https://github.com/exposir/gallery#4%E6%9C%882%E6%97%A5-%E5%9B%BD%E8%B4%B8)
-- [4 月 2 日 国贸](https://github.com/exposir/gallery#4%E6%9C%882%E6%97%A5-%E5%9B%BD%E8%B4%B8)
+- [4 月 2 日 国贸 北京](https://github.com/exposir/gallery#4-%E6%9C%88-2-%E6%97%A5-%E5%9B%BD%E8%B4%B8)
+- [3 月 26 日 奥林匹克森林公园 北京](https://github.com/exposir/gallery#3-%E6%9C%88-26-%E6%97%A5-%E5%A5%A5%E6%9E%97%E5%8C%B9%E5%85%8B%E6%A3%AE%E6%9E%97%E5%85%AC%E5%9B%AD-%E5%8C%97%E4%BA%AC)
 
 ## 2023
 
